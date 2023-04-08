@@ -1,4 +1,4 @@
-## Hi there Welocme to NiMediaOrg!!!👋
+## 👋 Hi there Welocme to NiMediaOrg!!!
 
 
 **Here are some ideas to get you started:**<br />
